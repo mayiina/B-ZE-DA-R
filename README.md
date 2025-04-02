@@ -1,0 +1,2 @@
+# B-ZE-DA-R
+BİZE DAİR
